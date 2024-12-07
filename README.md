@@ -1,1 +1,1 @@
-I swear I'll post something... someday.
+![_](https://media.discordapp.net/attachments/1279255818197270612/1314747860033470535/25_sin_titulo_20241206211820.png?ex=6754e5dc&is=6753945c&hm=d83dd2d93d9990a90c3e4eb3c5d27342dfe29bfa26e99c974ec2be4aa6672f47&=&format=webp&quality=lossless)
